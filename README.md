@@ -1,1 +1,1 @@
-oi obaa
+pensamento computacional
